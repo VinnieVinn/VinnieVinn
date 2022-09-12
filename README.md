@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VinnieVinn
+- 👀 I’m interested in money
+- 🌱 I’m currently learning about brainfuck
+- 💞️ I’m looking to collaborate on sex
+- 📫 How to reach me? 
